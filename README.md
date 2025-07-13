@@ -1,4 +1,4 @@
-# NixDeckSkins - Series I
+# Nix's Deck Skins - Series I
 Do you like Balatro?
 
 Do you like cool extra deck skins to mess with?
