@@ -2,6 +2,8 @@
 Do you like Balatro?
 Do you like cool extra deck skins to mess with?
 Do you like triangle guys?
+HAVE I GOT A MOD FOR YOU!!!
+![mod logo slash icon](https://github.com/nixthatoneartist/NixDeckSkins1/blob/c9b1e3899eb94fb37dcc4f969a6924dadf28460a/Screenshot%202025-07-13%20113107.png)
 
 ...okay I'll grant some of the ones I did here are obscure, but also DELTARUNE CHAPTER 4 SKIN WOAH
 
